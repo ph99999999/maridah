@@ -1,2 +1,0 @@
-# maridah
-dah hoood
